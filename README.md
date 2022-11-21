@@ -1,3 +1,3 @@
 # helloworld
 
-![Java Duke](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5d/Duke_%28Java_mascot%29_waving.svg/452px-Duke_%28Java_mascot%29_waving.svg.png)
+![Hello People](https://w0.peakpx.com/wallpaper/415/52/HD-wallpaper-hello-people-bear-brown.jpg)
